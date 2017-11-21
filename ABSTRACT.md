@@ -1,4 +1,4 @@
-## Leaving academia: building your runway to a career outside of the ivory tower
+## Leaving academia: building a runway to a career outside of the ivory tower
 
 The U.S. produces ~50,000 new Ph.D. holders each year, and there is simply not enough room in the academic job market to absorb them all.  Of these, a portion will go on to pursue post-doctoral work.  After four to eight years in the post-doc circuit, a small portion of these will finally land permanent, tenure-track positions.  All told, <10% of Ph.D. students will eventually become tenure-track faculty.
 
